@@ -1,1 +1,0 @@
-# Birinci-test
